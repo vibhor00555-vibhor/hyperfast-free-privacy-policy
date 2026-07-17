@@ -1,0 +1,1 @@
+# hyperfast-free-privacy-policy
